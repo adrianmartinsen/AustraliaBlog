@@ -1,3 +1,0 @@
-# Post Heading
-
-Contents...
