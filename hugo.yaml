@@ -2,3 +2,8 @@ baseURL: https://australiablog.adrianmartinsen.no/
 languageCode: en-us
 title: Australia Blog
 theme: PaperMod
+build:
+  command: hugo
+  publish: public
+  environment:
+    HUGO_VERSION: 0.119.0
