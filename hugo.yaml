@@ -12,3 +12,19 @@ params:
   homeInfoParams:
     Title: "Welcome to our family adventure \U0001F603"
     Content: We have decided to travel half way around the world on an adventure of a lifetime. So come along for the ride! Hopefully there will be plenty of excitement to report so check back often for more updates.
+
+menu:
+  main:
+    - identifier: about
+      name: About
+      url: /about/
+      weight: 10
+    - identifier: archives
+      name: Archives
+      url: /archives/
+      weight: 20
+    # Link to external site
+    # - identifier: example
+    #   name: example.org
+    #   url: https://example.org
+    #   weight: 30
