@@ -3,13 +3,13 @@ title: Long way Down (Under) - part 1
 date: 2025-03-02T03:25:00+01:00
 ---
 The days is finally here. It's time to pack our bags and head Down 
-Under. Some tears were shed as we made our goodbye's, but we are leaving
- with blessing's and love. Everyone has said we are crazy and brave for 
-doing this. Some have expressed jealousy (but in a good way). It is 
+Under. Some tears were shed as we made our goodbyes, but we are leaving 
+with blessings and love. Everyone has said we are crazy and/or brave for
+ doing this. Some have expressed jealousy (but in a good way). It is 
 clear that most people think of doing something like this - packing up 
 and exchanging your life for another. It is also clear that most people 
-also leave it at that. A thought and no more. I guess we are both lucky 
-and privileged to be able to do this. Alright, enough moral philosophy. 
+leave it at that. A thought and no more. I guess we are both lucky and 
+privileged to be able to do this. Alright, enough moral philosophy. 
 Let's see how we got on.
 
 ## Part 1: Oslo to Bangkok
@@ -30,8 +30,6 @@ through security. Waiting to pre-board your flight. Waiting to board the
 waiting in the Bangkok airport for our next flight.
 
 For now we are well on our way and things are going pretty well. One down and one more to go ✌️
-
-
 
 ![](pxl_20250301_093807878.jpg "Isabelle is too short for the water fountain")
 
