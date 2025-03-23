@@ -16,8 +16,6 @@ So on Friday we had orientation at the kids new school: Box Hill North Primary. 
 
 We ended our week with a trip to the Zoo. The Melbourne Zoo is definitely something I would recommend and we will be sure to visit again soon. We had some amazing animal encounters including close-ups with Emus, Giant Tortoises and a Pygmy Hippo! Also, this must be the first Zoo that I have been to that has their own line of coffee. I even bought a bag of coffee beans at the gift shop when we left.
 
-
-
 ![](pxl_20250317_021416510.jpg "One last cannonball")
 
 ![](20250321_115044.jpg "Still living out of suitcases")
@@ -25,3 +23,9 @@ We ended our week with a trip to the Zoo. The Melbourne Zoo is definitely someth
 ![](20250321_135722.jpg "Kassandra does not like her school uniform")
 
 ![](pxl_20250322_042623108.jpg "A visit to the Zoo")
+
+![](pxl_20250322_011141966.jpg "Emus, wallabys and kangaroos were in the same enclosure")
+
+![](pxl_20250322_030340615.jpg "This guys was about 85 years old")
+
+![](pxl_20250322_014045182.mp.jpg "Got to see some authentic Australian creatures, including koalas")
