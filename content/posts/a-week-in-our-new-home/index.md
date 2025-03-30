@@ -41,11 +41,25 @@ neighborhood. It as allowed us to explore the local area more and so far
 
 To round off the week we did another trip to the 
 aquarium since Anna didn't come last time. Their big crocodile was in a 
-much better place to view him this time and he sure is big. Overall it 
+much better place to view him this time. He sure is big! Overall it 
 is a nice little aquarium so we will probably be back again. And what 
 vacation isn't complete without some shopping? To not spend too much 
 money we checked out some thrift stores, or op shops as they call them 
 here. Found a few hidden treasures and got some small things for the 
 house for a decent price. Plenty of thrift stores to choose from as well
- so there will be more thrifting in the future I am sure. Also managed 
+ so there will be more thrifting in the future, I am sure. Also managed 
 to snap a picture of a Kmart finally!
+
+
+
+![](pxl_20250325_080638871.jpg "Isabelle and her scooter")
+
+![](pxl_20250326_073836770.jpg "A funny looking slide/sculpture")
+
+![](pxl_20250327_015300310.jpg "Big deliveries means big boxes")
+
+![](pxl_20250328_022918364.jpg "That is one big croc")
+
+![](pxl_20250328_023354092.mp.jpg "Turtles on a log")
+
+![](pxl_20250327_045319941.mp.jpg "A picture of a Kmart sign")
