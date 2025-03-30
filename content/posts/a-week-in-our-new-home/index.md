@@ -29,7 +29,7 @@ spousing'. So far it is quite enjoyable.
 
 Maybe 
 the highlight of the week for the kids was getting their scooters. 
-Non-electric ones that meas they have to kick with their legs. Also, the
+Non-electric ones that means they have to kick with their legs. Also, the
  chance of mortally wounding yourself is lower. In Norwegian we would 
 call them kick-bikes as we like to call things what they are. But so far
  the kids, especially Isabelle, has enjoyed scooting around the 
