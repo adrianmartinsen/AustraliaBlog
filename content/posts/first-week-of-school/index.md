@@ -45,3 +45,5 @@ before we got to see a some interesting flora. As we walked by the
 Shrine of Remembrance we decided to get up to the lookout balcony before
  we left. So all in all we did a day with a lot of walking, but also 
 some interesting things to see along the way.
+
+![](pxl_20250330_211422727.mp.jpg "Ready for the first day of school")
