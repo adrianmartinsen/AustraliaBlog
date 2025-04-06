@@ -47,3 +47,17 @@ Shrine of Remembrance we decided to get up to the lookout balcony before
 some interesting things to see along the way.
 
 ![](pxl_20250330_211422727.mp.jpg "Ready for the first day of school")
+
+![](pxl_20250331_045534682.jpg "Walking home from school")
+
+![](pxl_20250406_023314018.jpg "One of many sculptures in the Queen Victoria Gardens")
+
+![](pxl_20250406_030554201.jpg "Also a fountain in the Queen Victoria Gardens")
+
+![](pxl_20250406_040321018.jpg "Childrens garden at the Royal Botanical Garden")
+
+![](pxl_20250406_035140803.jpg "We played hide and seek in the bambu forest")
+
+![](pxl_20250406_042905025.mp.jpg "View from the balcony on the Shine of Remembrance")
+
+![](pxl_20250406_043152772.jpg "Melbourne skyline from the balcony on the Shrine of Remembrance")
