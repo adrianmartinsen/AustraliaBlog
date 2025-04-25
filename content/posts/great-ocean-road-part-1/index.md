@@ -16,7 +16,8 @@ seaside towns. With a total of three days spent on the road and another
 exciting thing lined up for Sunday on the way home I figured this one 
 required a two-parter.
 
-Day 1 - Melbourne to Apollo Bay
+## Day 1 - Melbourne to Apollo Bay
+
 We may 
 have got going a little late out of town as I had to pick up a rental 
 car and we needed to pack up, but we got going almost 11 on the dot. 
@@ -34,7 +35,8 @@ in. After that we headed down to the town of Lorne and up to Teddy's
 Lookout. The lookout itself was somewhat underwhelming, but we did get 
 to see several kookaburras in the wild.
 
-Day 2 - Apollo Bay to Port Campbell
+## Day 2 - Apollo Bay to Port Campbell
+
 Arriving
  in Apollo Bay after dark the day before we thankfully had time to 
 explore the town in the morning before leaving. Again, a lovely beach, 
@@ -75,3 +77,11 @@ After
  yet another exciting day we headed to Port Campbell for dinner and some
  much needed rest. Tomorrow we finish the last leg of the Great Ocean 
 Road and head to Geelong to check out Victoria's second largest city.
+
+![](20250424_140137.jpg "Enjoying splashing in the water")
+
+![](pxl_20250424_054205289~2.jpg "Airleys Inlet Lighthouse")
+
+![](pxl_20250424_054147977~2.jpg "Look! A rock")
+
+![](pxl_20250424_212046088.mp~2.jpg "Apollo Bay Marina")
