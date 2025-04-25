@@ -16,7 +16,7 @@ seaside towns. With a total of three days spent on the road and another
 exciting thing lined up for Sunday on the way home I figured this one 
 required a two-parter.
 
-## Day 1 - Melbourne to Apollo Bay
+Day 1 - Melbourne to Apollo Bay
 We may 
 have got going a little late out of town as I had to pick up a rental 
 car and we needed to pack up, but we got going almost 11 on the dot. 
@@ -26,15 +26,15 @@ got out of the city without problem. Once on the highway it was a pretty
  quaint as it is a little on the larger side, but it is still a seaside 
 town. It is next to Bells Beach, which is apparently quite famous if you
  are a surfer, but the beach along the town is still very nice. As we 
-quickly discovered, a nice beach is quite the norm along the coast. And 
-so after dipping our toes in the water we headed on to Aireys Inlet. 
-Here we got to see the first lighthouse of the trip. We got there too 
-late to go inside the lighthouse, but there was still plenty of views to
- take in. After that we headed down to the town of Lorne and up to 
-Teddy's Lookout. The lookout itself was somewhat underwhelming, but we 
-did get to see several kookaburras in the wild.
+quickly discovered, a nice beach is the norm along the coast. And so 
+after dipping our toes in the water we headed on to Aireys Inlet. Here 
+we got to see the first lighthouse of the trip. We got there too late to
+ go inside the lighthouse, but there was still plenty of views to take 
+in. After that we headed down to the town of Lorne and up to Teddy's 
+Lookout. The lookout itself was somewhat underwhelming, but we did get 
+to see several kookaburras in the wild.
 
-## Day 2 - Apollo Bay to Port Campbell
+Day 2 - Apollo Bay to Port Campbell
 Arriving
  in Apollo Bay after dark the day before we thankfully had time to 
 explore the town in the morning before leaving. Again, a lovely beach, 
@@ -43,7 +43,7 @@ time in the fresh seaside air before packing into the car. Thankfully
 the first stop of the day was Cape Otway and the Cape Otway Lightstation
  that was only a half hour drive down the coast. Turns out there was 
 plenty more to see than just another lighthouse as Cape Outway also has a
- telegraph station from 1859 when they put an underwater wire to 
+ telegraph station from 1859, when they put an underwater wire to 
 Tasmania so you could have seamless communication between this 
 up-and-coming state and Melbourne. Quite the telecommunication 
 improvement for a person in the 1850's. The lighthouse was even older, 
@@ -58,18 +58,18 @@ jam! After a great experience at Cape Otway it was time to head to the
 star attraction along the Great Oceon Road - the Twelve Apostles. 
 Rounding the cape and heading back up the coast on the west side it is 
 clear that the ocean hits harder on that side. The apostles are 
-limestone rocks that have been hit by the sea over the time and eroded 
+limestone rocks that have been hit by the sea over time and eroded 
 leaving a few stacks detached from the rest of the cliff. Apparently 
-there are only 7 apostles left today as two of them collapsed in the 
-last 20 years. Besides, there was never 12 of them to begin with so 
-where the name comes from is anyone's guess. No matter what you call 
-them it was certainly an experience watching the waves crash in and hit 
-these lone mountains in the ocean. Being a tourist magnet (I counted no 
-less than 7 busses of tourists along a large number of cars) they have 
-built a large viewing platform where you can enjoy great views. But the 
-real trick is to head down Gibson's Steps so you can get down on the 
-beach and really appreciate the strength of the waves rolling in. Not to
- mention trying to get down and up steps carved straight into the cliff.
+there are only 7 apostles left as two of them collapsed in the last 20 
+years. Besides, there was never 12 of them to begin with so where the 
+name comes from is anyone's guess. No matter what you call them it was 
+certainly an experience watching the waves crash in and hit these lone 
+mountains in the ocean. Being a tourist magnet (I counted no less than 7
+ busses of tourists along a large number of cars) they have built a 
+large viewing platform where you can enjoy great views. But the real 
+trick is to head down Gibson's Steps so you can get down on the beach 
+and really appreciate the strength of the waves rolling in. Not to 
+mention trying to get down and up steps carved straight into the cliff.
 
 After
  yet another exciting day we headed to Port Campbell for dinner and some
