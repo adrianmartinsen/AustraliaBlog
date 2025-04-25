@@ -84,4 +84,14 @@ Road and head to Geelong to check out Victoria's second largest city.
 
 ![](pxl_20250424_054147977~2.jpg "Look! A rock")
 
+![](20250424_164128.jpg "A kookaburra in the wild")
+
 ![](pxl_20250424_212046088.mp~2.jpg "Apollo Bay Marina")
+
+![](20250425_115748.jpg "Cape Otway Lightstation")
+
+![](pxl_20250425_022912219.jpg "Scones with cream and jam!")
+
+![](20250425_150534.jpg "Selfie time with the apostles")
+
+![](pxl_20250425_055223933~2.jpg "A lone apostle accesible from Gibson's Steps")
