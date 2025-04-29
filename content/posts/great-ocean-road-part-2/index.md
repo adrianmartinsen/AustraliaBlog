@@ -67,8 +67,6 @@ to have died down by the time we rolled back into town. A wonderful long
 country and not just the city of Melbourne. We will definitely have to 
 get out of the city more and see what else this country has to offer.
 
-
-
 ![](pxl_20250425_214106494.jpg "View of Port Campbell")
 
 ![](pxl_20250426_015329140.jpg "The London Bridge, or Arch as it is now")
@@ -78,3 +76,9 @@ get out of the city more and see what else this country has to offer.
 ![](pxl_20250426_024904078.jpg "More rock and ocean. This time the Bay of Islands")
 
 ![](pxl_20250427_001514653.jpg "Cunninghams Pier in Geelong complete with authentic birdlife")
+
+![](pxl_20250427_035204945.jpg "Ostrich holding up traffic")
+
+![](pxl_20250427_035434748.jpg "There were a great many animals to see")
+
+![](pxl_20250427_040357322.jpg "A curious giraffe")
