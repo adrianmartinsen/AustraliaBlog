@@ -11,6 +11,7 @@ the next morning. We found a great pizza and pasta place for dinner even
  all a lovely town well worth the visit.
 
 ## Day 3 - Port Campbell to Allansford (and beyond)
+
 Having
  seen a lot of ocean and rock the past two days we weren't really that 
 enthused to see even more ocean and rock. We spent the morning at the 
@@ -34,7 +35,8 @@ the Bays of Islands for a few more views of rock and ocean and we were
 done. The last half hour of the road could just have been skipped. So we
  just got back to the highway and headed for Geelong.
 
-## Day 4 - Geelong and the Werribee Open Range Zoo 
+## Day 4 - Geelong and the Werribee Open Range Zoo
+
 Being
  a good portion smaller than Melbourne, Geelong is still a nice looking 
 city. We found a great Mexican restaurant for dinner that had pretty 
@@ -64,3 +66,15 @@ to have died down by the time we rolled back into town. A wonderful long
  weekend with lots of new experiences. It was good to see more of the 
 country and not just the city of Melbourne. We will definitely have to 
 get out of the city more and see what else this country has to offer.
+
+
+
+![](pxl_20250425_214106494.jpg "View of Port Campbell")
+
+![](pxl_20250426_015329140.jpg "The London Bridge, or Arch as it is now")
+
+![](pxl_20250426_021708576.jpg "The Grotto. Would be nice with a splash of water")
+
+![](pxl_20250426_024904078.jpg "More rock and ocean. This time the Bay of Islands")
+
+![](pxl_20250427_001514653.jpg "Cunninghams Pier in Geelong complete with authentic birdlife")
