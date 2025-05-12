@@ -6,8 +6,8 @@ If last week was a normal week, then this week has been an exceptionally
  normal week. No doubt that feeling was aided by Isabelle being sick 
 Thursday night. We woke up to her trying, and not succeeding, to get out
  of the top bunk of the bunk bed before her stomach decided to empty 
-itself of it's contents. It was not a pleasant thing for anyone involved
- so I will spare you the details. But that meant I got to stay home on 
+itself of its contents. It was not a pleasant thing for anyone involved 
+so I will spare you the details. But that meant I got to stay home on 
 Friday with a sick child. That certainly made it feel very real that we 
 are now very much moved in.
 
@@ -26,7 +26,7 @@ quite fast. The funny thing is drivers seem to want to drive the speed
 limit no matter what, but at the same time Aussie drivers do not speed. 
 We drove on the freeway a while back when doing the Great Ocean Road. 
 The speed limit on a proper 6-8 lane freeway was only 100kph (60mph) and
- no one drive more than a few kph over the limit. In Norway on the E18 
+ no one drove more then a few kph over the limit. In Norway on the E18 
 that has the same speed limit it is quite normal to do about 20 over the
  limit. And even more odd is the fact that we are talking a proper 
 freeway which in the States would have a 70mph limit (about 110kph). So 
@@ -50,7 +50,7 @@ This
  week there will be no photos at the bottom of the blog post. First of 
 all I haven't really taken any photos this week. As mentioned it was an 
 exceptionally normal week punctuated by normal things, like going shoe 
-shopping for the kids on Saturday and staying home to wash the bathroom 
+shopping for the kids on Saturday. Or staying home to wash the bathroom 
 on Sunday. Or going to the park to enjoy the rather warm autumn we are 
 having. They say this will be the warmest autumn on record and I am 
 inclined to believe them. But I digress. This blog was made with 
