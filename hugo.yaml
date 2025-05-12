@@ -1,6 +1,8 @@
 baseURL: https://australiablog.adrianmartinsen.no/
 languageCode: en-us
 title: Australia Blog
+paginate: 5
+# pagination.pagerSize: 5
 theme: PaperMod
 # build:
 #   command: hugo
@@ -8,23 +10,26 @@ theme: PaperMod
 #   environment:
 #     HUGO_VERSION: 0.119.0
 
+#create lastmod date from git
+enableGitInfo: true
+
 params:
   homeInfoParams:
     Title: "Welcome to our family adventure \U0001F603"
     Content: We have decided to travel half way around the world on an adventure of a lifetime. So come along for the ride! Hopefully there will be plenty of excitement to report so check back often for more updates.
-
+  ShowPostNavLinks: true
 menu:
   main:
-    - identifier: about
-      name: About
-      url: /about/
-      weight: 10
+    # - identifier: about
+    #   name: About
+    #   url: /about/
+    #   weight: 10
     - identifier: archives
       name: Archives
       url: /archives/
       weight: 20
     # Link to external site
-    # - identifier: example
-    #   name: example.org
-    #   url: https://example.org
-    #   weight: 30
+    - identifier: photos
+      name: Photos
+      url: https://photos.app.goo.gl/P2oDCyemyhp1Tp8a8
+      weight: 10
