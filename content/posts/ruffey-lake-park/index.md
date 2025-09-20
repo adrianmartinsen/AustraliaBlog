@@ -1,6 +1,6 @@
 ---
 title: Ruffey Lake Park
-date: 2025-09-07T16:46:00+10:00
+date: 2025-09-14T16:46:00+10:00
 ---
 One of the things Melbourne does well is a lot of parks and greenery. And not just downtown, but in all parts of the metropolitan area. So with spring in the air Isabelle and I headed north to Ruffey Lake Park. It is a large park on the northeast side of town not too far away from where we live. Funny enough it is quite popular to use for birthday parties. With good facilities to barbecue in almost every place it's no wonder Australians are fond of eating outdoors. But Ruffey Lake Park is on a different scale than most. With several playgrounds to choose from it is a family favorite. And when I say playground I mean of course the play area, but also under-roof seating to accommodate at least 50 people as well as the aforementioned barbecue facilities, and naturally public bathrooms that puts most others to shame.
 
