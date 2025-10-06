@@ -1,6 +1,6 @@
 ---
 title: Sydney Day 2
-date: 2025-10-07T10:24:00+11:00
+date: 2025-09-30T10:24:00+10:00
 ---
 First full day in Sydney and we were starting with a bang. Or at least a morning whale watching cruise. We didn't have as much time to enjoy the hotel breakfast as the boat was leaving at 9.30 and we still had to figure out getting around Sydney by public transport. Thankfully figuring out what mode of transport to use and what line to take isn't hard, but Sydney's "opal card" system for kids wasn't as straight forward as the "myki card" version here in Melbourne. That is to say that the physical card was sold at only a limited selection of retail stores, while in Melbourne you can buy the card from any ticketing machine. So we ended up grabbing one-time tickets for the kids and as for us adults, we just use our phones as you might expect.
 
