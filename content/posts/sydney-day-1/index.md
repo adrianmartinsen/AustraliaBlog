@@ -1,6 +1,6 @@
 ---
 title: Sydney Day 1
-date: 2025-10-06T10:58:00+11:00
+date: 2025-09-29T10:58:00+10:00
 ---
 To make the most of our time here in Australia we decided that Sydney needed a visit. Melbourne is technically almost as big, but Sydney has the edge on the more iconic Australian things, like the opera house and warmer climate. The night before we left however, we also had a visit from the tooth fairy. Isabelle has a few loose teeth that are taking their time coming out, but one finally decided to give in as she was getting to bed. If you are wondering the going rate of the Australian tooth fairy is $2 Australian dollars per tooth. For older kids the tooth fairy will even do a digital transaction without all the fuss of putting coins under pillows (or similar things). But on this particular night the tooth fairy happened to leave a $2 coin under Isabelle's pillow.
 
