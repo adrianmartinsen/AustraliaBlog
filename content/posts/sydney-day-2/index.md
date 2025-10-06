@@ -15,3 +15,15 @@ After having said goodbye to the whales we headed back to shore. Like I mentione
 ## Dinner alfresco  
 
 For dinner this evening we decided that we wouldn't even bother with sitting down at a restaurant. We headed back to Tumbalong Park and got takeout from the different places around the park. That worked great! The kids got what they wanted and Anna and I could explore more exotic options. And there being a nice playground right there meant we could all enjoy another warm evening in Sydney. Of course we topped it all off with an ice cream before it was back to the hotel to get some sleep before another exciting day.
+
+![](pxl_20250929_234707334.mp.jpg "Great views heading out of the harbor")
+
+![](pxl_20250930_002257572.jpg "One of several whale tails we would see")
+
+![](pxl_20250930_025903484.jpg "Obligatory tourist photo")
+
+![](pxl_20250930_031118045.mp.jpg "Sulphurcrested cockatoo")
+
+![](pxl_20250930_032525495.jpg "Watching out so the Ibis doesn't take our food")
+
+![](pxl_20250930_084525375.mp.jpg "Dinner in a swimsuit")
