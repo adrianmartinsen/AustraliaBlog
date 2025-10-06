@@ -15,3 +15,11 @@ We stayed at the ParkRoyal Hotel in Darling Harbour. It was nice enough if you a
 ## Tumbalong Park
 
 I think I have mentioned Melbourne being good at their green spaces and parks, but if there is one place Melbourne could improve it's having more play areas downtown. Just a few minutes walk from our hotel (once we found the correct walking bridge to cross the road), is Tumbalong Park. A giant play area and green space. It also happened to be lined with restaurants at the edges so we would be back here on several occasions to eat and play. But the water feature was by far the most popular. Being a more summer-like temperature, even late in the evening, the kids found splashing in the water a blast!
+
+
+
+![](pxl_20250929_022553176.mp~2.jpg "Even though Darling Harbour is hard to navigate, they do have nice pockets of reprieve")
+
+![](pxl_20250929_062636818.mp.jpg "Another nice fountain along the water front")
+
+![](pxl_20250929_063531004.mp.jpg "Once you got to the water Darling Harbour is quite nice")
