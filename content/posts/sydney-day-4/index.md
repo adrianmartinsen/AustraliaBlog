@@ -1,6 +1,6 @@
 ---
 title: Sydney Day 4
-date: 2025-10-13T12:28:00+11:00
+date: 2025-10-02T12:28:00+10:00
 ---
 Another day of tourism ahead of us. This time it we were heading to the zoo. Sydney has two zoo's, but we were specifically heading to the Taronga Zoo, which is across the bay from Circular Quay. That means you can take a boat to get there. Of course, with the whale cruise fresh in mind, Isabelle was apprehensive about another boat ride. Thankfully you only cross the bay which is quite sheltered and the trip is only about 10 minutes long. So no sea sickness, thankfully.
 
