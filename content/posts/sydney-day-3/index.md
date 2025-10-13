@@ -10,7 +10,14 @@ I might have mentioned it in some post at some time, but the aquarium in Melbour
 
 ## Chinatown
 
-There was of course more to see in aquarium than just a Dugong, but for us that was probably the highlight. I forgot to mention the aquarium was just a 10 minute walk from our hotel, so after we were done and had some lunch we headed back to get out of the heat. As Sydney is a lot warmer than Melbourne we are not acclimatized to heat yet. It is getting warmer in Melbourne, but Sydney felt more like summer. Indeed, the weekend before we arrived it hit 30C degrees (86F), but thankfully it cooled down a few degrees the week were there. So once the brunt of the heat subsided we headed to Chinatown. It's not a huge Chinatown, but there are the classic gates and a few statues. Since we kind of live in the unofficial Chinatown of Melbourne it felt more like home. After picking up some more Asian foods from different vendors and the kids not really enjoying any of them, we picked up some burgers on our way back to the hotel and called it a night.
+Chinatown
+
+There was of course more to see in aquarium than just a Dugong, but for us that was probably the highlight. I forgot to mention the aquarium was just a 10 minute walk from our hotel, so after we were done and had some lunch* we headed back to get out of the heat. As Sydney is a lot warmer than Melbourne we are not acclimatized to heat yet. It is getting warmer in Melbourne, but Sydney felt more like summer. Indeed, the weekend before we arrived it hit 30C degrees (86F), but thankfully it cooled down a few degrees the week were there. So once the brunt of the heat subsided we headed to Chinatown. It's not a huge Chinatown, but there are the classic gates and a few statues. Since we kind of live in the unofficial Chinatown of Melbourne it felt more like home. After picking up some more Asian foods from different vendors and the kids not really enjoying any of them, we picked up some burgers on our way back to the hotel and called it a night.
+
+\* For lunch what can only be described as one interesting hotdog. It was in essence a chili dog, with quite the kick to it, and the hotdog itself was on a bed of mushy peas. Very interesting combination!
+
+
+
 
 ![](pxl_20251001_003855615.mp.jpg "Cool fish")
 
