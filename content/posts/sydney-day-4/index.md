@@ -2,7 +2,7 @@
 title: Sydney Day 4
 date: 2025-10-02T12:28:00+10:00
 ---
-Another day of tourism ahead of us. This time it we were heading to the zoo. Sydney has two zoo's, but we were specifically heading to the Taronga Zoo, which is across the bay from Circular Quay. That means you can take a boat to get there. Of course, with the whale cruise fresh in mind, Isabelle was apprehensive about another boat ride. Thankfully you only cross the bay which is quite sheltered and the trip is only about 10 minutes long. So no sea sickness, thankfully.
+Another day of tourism ahead of us. This time we were heading to the zoo. Sydney has two zoo's, but we were specifically heading to the Taronga Zoo, which is across the bay from Circular Quay. That means you can take a boat to get there. Of course, with the whale cruise fresh in mind, Isabelle was apprehensive about another boat ride. Thankfully you only cross the bay which is quite sheltered and the trip is only about 10 minutes long. So no sea sickness, thankfully.
 
 ## A zoo from top to bottom
 
@@ -11,8 +11,6 @@ Once we disembark the boat we were met with a shuttle bus to the main entrance o
 ## Avoiding school groups
 
 As this was term break for schools in New South Wales as well, we spent the day trying to avoid larger groups of school kids. Not that it was a big problem, but there were instances were we decided to go the other direction because a larger group of school kids were going where we were thinking of going. They have the same type of program in Melbourne too, and one of the activities is going to the zoo, but for us it doesn't make sense paying for after-school care when we don't have jobs to worry about anyway. Anyway, with a few evasive manoeuvres we enjoyed the day out. We also got to see a capybara, a sun bear and two pygmy hippos. There was more, of course, but listing everything would take too much space on the page. Those were the highlights for us. As the day went on we could tell the wind was picking up, but that wasn't the biggest problem on our return. As we just missed the 3.12PM boat back, we had to wait 20 minutes on the docks for the next boat. And the dock would not stop filling up with people to the point were I would have thought the boats capacity would be reached. No one was left behind as far as I could see, but it did feel like a fight to get on the boat on our return. After a somewhat more bumpy ride back we just got takeout and crashed at our hotel. A long day in the sun had taken it out of us for sure.
-
-
 
 ![](pxl_20251002_010227476.mp.jpg "Arriving at the zoo by boat!")
 
