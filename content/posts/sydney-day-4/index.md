@@ -11,3 +11,19 @@ Once we disembark the boat we were met with a shuttle bus to the main entrance o
 ## Avoiding school groups
 
 As this was term break for schools in New South Wales as well, we spent the day trying to avoid larger groups of school kids. Not that it was a big problem, but there were instances were we decided to go the other direction because a larger group of school kids were going where we were thinking of going. They have the same type of program in Melbourne too, and one of the activities is going to the zoo, but for us it doesn't make sense paying for after-school care when we don't have jobs to worry about anyway. Anyway, with a few evasive manoeuvres we enjoyed the day out. We also got to see a capybara, a sun bear and two pygmy hippos. There was more, of course, but listing everything would take too much space on the page. Those were the highlights for us. As the day went on we could tell the wind was picking up, but that wasn't the biggest problem on our return. As we just missed the 3.12PM boat back, we had to wait 20 minutes on the docks for the next boat. And the dock would not stop filling up with people to the point were I would have thought the boats capacity would be reached. No one was left behind as far as I could see, but it did feel like a fight to get on the boat on our return. After a somewhat more bumpy ride back we just got takeout and crashed at our hotel. A long day in the sun had taken it out of us for sure.
+
+
+
+![](pxl_20251002_010227476.mp.jpg "Arriving at the zoo by boat!")
+
+![](pxl_20251002_011155791.jpg "Historic gates")
+
+![](pxl_20251002_012519212.jpg "A wide selection of bird life. This is a King Parrot I believe")
+
+![](pxl_20251002_013546804.jpg "A noctarnal creature of some kind")
+
+![](pxl_20251002_031408626.jpg "Alpacas!")
+
+![](pxl_20251002_041517038.jpg "Worlds largest rodent...")
+
+![](pxl_20251002_044959892.jpg "More birds! Quite the plumage on this guy")
