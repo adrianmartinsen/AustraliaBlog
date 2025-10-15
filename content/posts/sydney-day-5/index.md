@@ -7,3 +7,13 @@ Last day in Sydney. Before we headed home though we had another day to fill with
 ## Time to leave
 
 Before we headed to airport we went back to Tumbalong Park one last time. Sadly, the park was overrun with people. We had seen people at our hotel that were part of some space convention and it seems this Friday they were hosting something in the park for families. The International Convention Centre Sydney happens to be on the one side of the park, and now they had spilled into the park with exhibits of some kind. It was so crowded and we were quite tired (not to mention hungry) that we couldn't begin to check it out. Thankfully we walked further along, back to where we picked up our burgers the other night. There we found it lot less crowded and we got some lunch before we had to head back to the hotel to pick up our luggage and get a ride to the airport. Sydney's domestic terminal is certainly no better or worse than Melbourne although we had been warned by the airline to meet up with plenty of time due to construction going on at the terminal. After we drop our bags we got to go through the assisted line at security so we did save maybe 5-10 minutes there. But seeing the barriers set up to funnel people into security I would say that we came at a low point of the day. The flight was completely full though, so I guess a Friday evening might not be the best time to go between Australia's two biggest cities. Sadly our flight was both late getting out of Sydney, and delayed on arrival at Melbourne so we ended up getting home much later than planned. Thankfully it didn't matter much as we have the weekend at home to get ready for the week ahead.
+
+
+
+![](pxl_20251003_005503731.mp.jpg "Not just any museum....")
+
+![](pxl_20251003_012612202.jpg "HMAS Vampire has the big guns!")
+
+![](pxl_20251003_012025486.jpg "Forgot to get a picture of the HMAS Vampire, so enjoy the view from the ship")
+
+![](pxl_20251003_073800489.jpg "Don't want to leave Sydney, or maybe its the pillow?")
