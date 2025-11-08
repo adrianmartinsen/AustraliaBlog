@@ -11,3 +11,9 @@ It might as well be another galaxy. The travel time is long no matter where you 
 ## Then the jet lag hits
 
 As if the travel wasn't bad enough, you have a 10 hour time difference to contend with as well. So once you get there, you are exhausted and just want to rest, but you have to get back on schedule. For some reason the change from east to west is worse than going the other way. I always felt this when going to the states as well. Going from west to east is simple as you feel alert in the mornings and you can get going. When going west you struggle to get out of bed on time and the whole day is a non-starter. Just think if you want to get out of bed at 7 a.m. yet your body is telling you it is 9 p.m. and you should be getting ready for bed instead. So yeah, Australia is far away no matter how you look at it. While it is bitter sweet to think that Australia may not be home for much longer, it might just be as well.
+
+![](pxl_20251105_150208094.jpg)
+
+![](pxl_20251021_144652014.jpg)
+
+![](pxl_20251021_051943027.jpg)
