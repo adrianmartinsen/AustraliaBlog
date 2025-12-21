@@ -1,5 +1,5 @@
 ---
-title: Peeling Bark – What Does it Mean?
+title: Peeling bark – What does it mean?
 date: 2025-12-03T08:15:00+11:00
 ---
 As some might remember I've had a fascination with trees in urban areas. Especially how they ensure the trees don't get entangled in the power lines. But recently a new phenomena with trees has been happening. For people in Europe and North America the idea of leaves falling in autumn is quite normal. Much like everything else in Australia even the trees operate differently. Instead of shedding leaves in autumn the Gum tree sheds its bark in the spring. 
